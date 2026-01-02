@@ -1,1 +1,1 @@
-Alternate URL Access: https://tinyurl.com/carbonsight
+Alternate URL Access: https://tinyurl.com/warpspeedv1
